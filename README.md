@@ -1,0 +1,1 @@
+# udajovky1_semestralka_IS_firmy
